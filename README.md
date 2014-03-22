@@ -1,2 +1,2 @@
-Slut
+Human
 ====
